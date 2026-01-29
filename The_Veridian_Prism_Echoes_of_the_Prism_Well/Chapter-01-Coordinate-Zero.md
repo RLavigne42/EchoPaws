@@ -1,0 +1,9 @@
+# Chapter 1: Coordinate Zero
+
+At the heart of the Veridian Prism stood a translucent limestone pillar wrapped in glowing Silver Ferns, its surface pulsing like a slow heartbeat. The locals called it the Pillar of Memory, and the clearing around it the Anchor Point (🔲), where identity held fast against the world’s shifting logic. Beneath it, the Prism Well shimmered with kaleidoscopic teal, magenta, and amber, a pool that reflected not the sky but the spectrum that lived within Paws’ fur.
+
+Echo perched at the edge of the Prism Well, front-facing and perfectly symmetrical, indigo eyes like deep galaxies reflecting the suspended leaves of the Canopy of Stillness. His filigreed plumage glowed with cool silver, icy blues, and deep navy—scale-like plates on his crown and chest forming an armored elegance. He was stillness embodied, a calm, analytical anchor who understood the grove’s logic as if he had memorized every leaf.
+
+Paws bounded into the clearing with a flourish of confetti flecks from the white ruff around their neck, each rainbow speck catching the light. The cat’s amber eyes were oversized and glossy with wonder, framed by ginger tabby stripes, orange freckles, and a soft, knowing smirk. A rebellious mohawk tuft—streaked teal, magenta, yellow, and blue—rose between their ears, announcing a kinetic spirit that refused to be still.
+
+Together they completed the balance of the Prism. Echo traced patterns in the air with a blue-gray wingtip, mapping routes to the north’s Petrified Arches. Paws sketched a playful arc with a paw, imagining shortcuts to the west’s Chroma-Fields. Beneath the Canopy of Stillness, leaves hovered midair, held by Echo’s Starlight Stillness, while Paws’ confetti flecks floated upward to mingle with the dust motes. The journey began at Coordinate Zero, where wisdom and whimsy agreed to walk side by side.
